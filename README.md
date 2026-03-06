@@ -1,1 +1,1 @@
-https://youtu.be/jne13OlSioI
+https://youtu.be/jne13OlSioI - ссылка на видео анимации
